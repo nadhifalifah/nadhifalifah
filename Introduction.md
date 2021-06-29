@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nadhifalifah
+- 👀 I’m interested in read a novel, and made some design
+- 🌱 I’m currently learning economics and writting technical
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me you can reach me on email nadhifalifah1@gmail.com and my social media in Instagram @nadhifalfh
